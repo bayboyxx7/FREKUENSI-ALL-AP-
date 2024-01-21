@@ -1,0 +1,2 @@
+# FREKUENSI-ALL-AP-
+GHZ
